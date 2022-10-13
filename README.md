@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do geovanedevxd 😁
+## Bem-vindo(a) ao perfil do GeovaneDev 😁
 
  <div>
    <a href="https://github.com/geovanedevxd">
